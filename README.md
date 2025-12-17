@@ -145,7 +145,7 @@ The landing page uses a professional color palette:
 ## Contact
 
 For questions or modifications to this plan:
-- Email: marketing@emiratestudios.com
+- Email: allan@emiratestudios.com/digitalallan07@gmail.com
 - Project: Digital Marketing Plan 2025
 
 ---
