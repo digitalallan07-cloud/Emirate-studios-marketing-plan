@@ -1,4 +1,4 @@
-# Emirate Studios - Digital Marketing Plan 2025
+# Emirate Studios - Digital Marketing Plan 2026
 
 A comprehensive digital marketing strategy landing page designed to showcase the complete marketing roadmap for Emirate Studios.
 
